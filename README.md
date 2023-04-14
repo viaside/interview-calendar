@@ -1,0 +1,1 @@
+testing task of uchi.ru
